@@ -1,5 +1,10 @@
 🏆【TG最强白嫖分享频道】
 
+本频道专用节点订阅（永久更新）
+https://raw.githubusercontent.com/Jsnzkpg/Jsnzkpg/Jsnzkpg/V2
+
+
+
 频道链接🔗 https://t.me/Jsnzk
 
 ❶频道365天更新白嫖，来了就关注吧，肯定会对你有所帮助的，更新内容覆盖面非常广，详细请看第2条～
