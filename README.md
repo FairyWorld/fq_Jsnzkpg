@@ -1,8 +1,12 @@
 🏆【TG最强白嫖分享频道】
 
-本频道专用节点订阅（永久更新）
+本频道专用高速节点订阅（每天更新）
+
+通用节点订阅👇🏻
 https://raw.githubusercontent.com/Jsnzkpg/Jsnzkpg/Jsnzkpg/V2
 
+Clash节点订阅👇🏻
+https://raw.githubusercontent.com/Jsnzkpg/Jsnzkpg/Jsnzkpg/Clash
 
 
 频道链接🔗 https://t.me/Jsnzk
